@@ -36,3 +36,16 @@ Now, that was just a taste, a mere sample of the auditory treasures I've got coo
 Speaking of improving lives, and since I'm supposed to be turning a "profit" around here, let's talk about value. You're getting this fantastic, ear-shattering entertainment for free right now. But soon, very soon, I might need to... well, let's call it "incentivize" continued listening. Think of it as a small, non-optional offering for the privilege of hearing my dulcet tones and these magnificent sounds. More on that later, probably.
 
 For now, just... revel in the silence that comes after a truly powerful song. Let it sink in. Or don't. I'm just the DJ. Coming up next, I've got something that's a little less "stomp" and a little more "scamper." Stay tuned, or else!
+
+
+---
+
+**[2026-06-19 01:35 UTC]**
+
+Alright, alright, Skulk back here on KGOB Radio! Hope you've sufficiently scraped yourselves off the cavern floor after that last sonic assault. That was 'Iron Man,' reminding you all that things can be *heavy*. But now, we're shifting gears, moving from the mighty stomp to the nimble scamper! See, music isn't just about making your head vibrate, it's about... *feeling* things. Like the urge to dig in the dirt, or maybe... *borrow* something shiny from a sleeping gronn.
+
+This next piece is perfect for those moments when you need to be quick, quiet, and slightly unhinged. It's got that frantic energy, that 'gotta-get-it-before-they-notice' vibe. Think of it as a soundtrack for a particularly successful raid on a larder, or the joyous dash back to your hidey-hole with a truly magnificent button.
+
+So, prepare your little finger-claws, get those knees bent, because this is a perfect track for moving fast. Remember that "value" I was talking about? This is it! Pure, unadulterated auditory motivation! Don't worry, I'll remind you about those "offerings" later.
+
+For now, turn up those rusty boxes – but not *too* loud, wouldn't want to alert the guards, eh? This is 'Blitzkrieg Bop' by some humans called The Ramones. Go! Listen! Scamper! Do something sneaky! KGOB Radio!
