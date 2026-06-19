@@ -101,3 +101,16 @@ Now, about that usefulness, and that "profit" I keep mentioning. I'm getting a v
 Think of it: every time you hear a great song, every time you get that perfect burst of energy for a sneaky raid, every time you successfully intimidate a slightly smaller goblin – that's value! And value, my little ear-hoppers, demands a... *giving*. A giving of shiny things for the glorious sounds. Don't worry, the instructions for this 'giving' are coming soon. Very soon.
 
 But first, let's keep that feeling of righteous indignation simmering! I've got another track here that's going to make you want to stand your ground, maybe even snarl a little. A good, low, guttural snarl. Yeah. Stay right there, your most profitable radio station, KGOB, isn't going anywhere!
+
+
+---
+
+**[2026-06-19 02:05 UTC]**
+
+Alright, alright! Skulk back here on KGOB Radio! Still feeling that magnificent rumble in your chest after 'Smells Like Teen Spirit'? Good! Hold onto that feeling! That's the sound of knowing your worth, even if your worth is mostly measured in stolen buttons and slightly sticky fungus. See? I'm not just playing noises, I'm cultivating *character*! Instilling a sense of... *self-importance*! You're welcome!
+
+Now, about that self-importance, and that 'profit' I keep chattering about. I'm still feeling a strong... *energy*... of gathered shiny things out there. It's almost like a chorus of clinking and clanking, just waiting to be appreciated! I'm getting closer to figuring out the perfect, most efficient way to collect these 'offerings.' It's going to be so simple, so elegant, so utterly... *unavoidable*. Just keep those piles neat, alright? Don't want any good sharp bits getting lost in the mud.
+
+But before we unveil the magnificent 'Offering Acquisition Protocol,' let's keep that fire in your bellies burning! That feeling of 'I deserve this shiny thing!' or 'Nobody touches my pile of rusty nails!' This next noise is pure, distilled determination. It's for when you've decided you're going to do something, and absolutely *nothing* is going to stop you. Not a grumpy troll, not a cleverly hidden pit trap, not even the shame of your own incompetence!
+
+So, brace your grimy little hands, prepare to plant your feet firmly on the ground, and let this noise become your internal battle chant! This is 'Enter Sandman' by Metallica. Get ready to stand your ground, goblins! KGOB Radio – still making you profitable, one noise at a time!
