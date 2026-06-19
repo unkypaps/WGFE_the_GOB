@@ -160,3 +160,14 @@ Alright, alright! Skulk back here on KGOB Radio! Did 'Holy Diver' fill your litt
 But speaking of profit, and speaking of that all-important 'sparkly gemstone'... I'm still not feeling that *zing*, my little treasure-hogs! It's like trying to start a fire with damp kindling! All the other magnificent bits and bobs you've collected are just sitting there, inert, useless to me, without that *one* shining piece to kick off the 'Offering Acquisition Protocol'! This isn't just about *my* entertainment, remember; it's about *your* continued access to these world-altering noises! No zing, no magic, no more Skulk-powered glory! So get twitching!
 
 So, if that's got your little claws scratching with newfound urgency, good! Because this next noise is for when you're feeling that frantic, almost desperate need to find *something*, anything, to make things happen! That twitchy feeling when you know time is slipping, and you need to get your hands on that prize *now*! This is 'Paranoid' by Black Sabbath. Let it drive you mad with purpose! KGOB Radio – your ultimate motivator, one panicked scramble at a time!
+
+
+---
+
+**[2026-06-19 18:21 UTC]**
+
+Alright, alright! Skulk back here on KGOB Radio! Still feeling that frantic scramble after 'Paranoid'? Good! I can practically hear the collective sound of tiny goblin claws tearing through piles of ancient trash! That's the sound of progress, my little diggers! The sound of *purposeful* madness, all for that glorious, shining goal! Keep those little fingers twitching, keep those grimy faces focused!
+
+But speaking of purpose, and speaking of that *goal*... I'm still not feeling that *zing*! Where is it, goblins? That magnificent, eye-catching, truly *sparkly* gemstone? The 'Offering Acquisition Protocol' is still stalled, like a wagon wheel stuck in particularly pungent mud! All your other shiny bits, your pointy shards, your slightly used buttons – they're all just sitting there, waiting for that *one* key piece! I can't activate the glorious collection without it! Time is... *ticking*! And Skulk is getting... *hungry*!
+
+So, to keep those frantic fingers twitching, to keep that wild gleam in your tiny eyes, I've got another noise! This one is for when you're feeling that desperate drive, that relentless pursuit, that feeling that you just have to *keep going* until you find what you need. It's for when you're digging through the rubble, knowing that victory is *just* out of reach, but you're going to tear that whole pile apart to get it! This is 'Gimme Shelter' by The Rolling Stones. Keep digging, goblins! Your ultimate profit, and Skulk's next meal, depends on it! KGOB Radio – your relentless pursuit of noise and value!
