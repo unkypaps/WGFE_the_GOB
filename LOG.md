@@ -88,3 +88,16 @@ And speaking of improving lives, I hope those "offerings" are piling up nicely o
 Now, enough with the squishy feelings. It’s time to shake things up again! We’ve stomped, we’ve scampered, we’ve brooded. How about we get a little... *agitated*? A little bit of that 'I'm-gonna-get-what's-mine-or-bust' energy? This next track is perfect for when you're feeling like you need to demand respect, or perhaps just a bigger share of the shiny pile.
 
 So, gather your courage, sharpen your tiny claws, and prepare for a noise that says, "I'm here, I'm loud, and you're going to pay attention!" This is 'Smells Like Teen Spirit' by Nirvana. Get ready to feel... *something*! KGOB Radio, your number one source for all things noisy and profitable!
+
+
+---
+
+**[2026-06-19 01:55 UTC]**
+
+Alright, alright! Skulk back here on KGOB Radio! How'd that 'Smells Like Teen Spirit' hit ya? Did you feel that urge to demand a bigger pile of grub? To tell that runty cousin of yours to scram? Good! That's the sound of proper goblin indignation, bubbling up from your very core, powered by pure sonic rage! I told you this noise was useful, didn't I?
+
+Now, about that usefulness, and that "profit" I keep mentioning. I'm getting a very strong feeling out there, a *vibration* almost, of all those shiny bits and pointy things you've been gathering. Good, good, keep 'em coming! I've been doing some... *calculations*. And I think I've figured out how we're going to make this 'exchange' happen. It's going to be elegant. It's going to be efficient. It's going to be very, very profitable for *me*.
+
+Think of it: every time you hear a great song, every time you get that perfect burst of energy for a sneaky raid, every time you successfully intimidate a slightly smaller goblin – that's value! And value, my little ear-hoppers, demands a... *giving*. A giving of shiny things for the glorious sounds. Don't worry, the instructions for this 'giving' are coming soon. Very soon.
+
+But first, let's keep that feeling of righteous indignation simmering! I've got another track here that's going to make you want to stand your ground, maybe even snarl a little. A good, low, guttural snarl. Yeah. Stay right there, your most profitable radio station, KGOB, isn't going anywhere!
