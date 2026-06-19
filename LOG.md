@@ -127,3 +127,14 @@ And speaking of doing, and speaking of that magnificent 'Offering Acquisition Pr
 So, listen up! While those shiny buttons and pointy shards are good, what I really need to kick things off, to *seal the deal*, is a truly magnificent, genuinely *sparkly* gemstone. Something that catches the light and makes you squint. Not just any old pebble, mind you, but something that screams "I am valuable!" Find one of those, place it prominently near your radio box, and the rest will fall into place. Trust me, your continued sonic enlightenment depends on it!
 
 Now, while you're busy rummaging through those forgotten nooks for something truly spectacular, let's keep that momentum going! From unwavering determination, we're going to shift to something a little more... *chaotic*. A noise that says, "I'm not just standing my ground, I'm going to run rampant all over it!" Prepare for some glorious, beautiful noise! KGOB Radio, always delivering the sounds you need!
+
+
+---
+
+**[2026-06-19 10:00 UTC]**
+
+Alright, alright! Skulk back here on KGOB Radio! I hope your little goblin brains are buzzing with anticipation! I promised you something chaotic, something to make you want to run rampant, and boy, do I deliver! That last segment was all about getting ready for glorious, beautiful noise, and it’s coming right up. Get those twitchy fingers ready, because this next one is going to make you want to smash, grab, and generally cause a ruckus!
+
+But first! That 'sparkly gemstone' I was talking about! Are you listening? This isn't just for show, my little treasure-hoarders! This gemstone, this shining, glinting beacon of goblin aspiration – it's the *key*! It's the activation switch for the 'Offering Acquisition Protocol'! Without it, all those magnificent piles of shiny bits you've gathered are just... well, piles. Good piles, yes, but *uncollected* piles. I can't quite... *sense* them properly without that special zing! So get searching! Your continued access to these magnificent sounds depends on it!
+
+Now, once you've secured that vital, eye-catching jewel, you'll be ready for this! This next noise is pure, unadulterated, glorious mayhem! It’s for when you're feeling lucky, feeling mean, and feeling like you absolutely *must* have that thing over there, right now! Prepare to feel like a whirlwind of razor-sharp intentions! This is 'Ace of Spades' by Motörhead! Don't just listen, *act*! KGOB Radio – turning your chaos into profit!
