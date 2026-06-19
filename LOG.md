@@ -75,3 +75,16 @@ But now, we slow things down. I know, I know, 'slow' is usually bad. Slow means 
 It's what the humans call 'pensive.' A time for introspection! For plotting your next big score, for remembering past grievances, for perhaps shedding a single, dry tear over a broken trap. It's called 'Wish You Were Here' by a band called Pink Floyd. And no, they're not actually wishing *you* were here in my broadcast booth. That would be incredibly messy and probably violate several health codes.
 
 So, lean back against your pile of junk, hold your favorite, slightly blood-stained pebble, and just... listen. Let the noise fill that empty space where your better judgment used to be. Remember, pure value, right here on KGOB Radio. And remember that "offering" I mentioned earlier? Plenty of time to consider that while you're being... pensive. Don't touch that dial!
+
+
+---
+
+**[2026-06-19 01:50 UTC]**
+
+Alright, alright! Skulk back here on KGOB Radio! Did that 'Wish You Were Here' get your little goblin hearts all... *squishy*? Good. Sometimes you need a good squishy feeling, right before you do something truly devious. That's the power of sound, my friends! From stomping to scampering to pensive brooding, I'm giving you all the noises you never knew you needed. Pure, unadulterated, life-improving noise, delivered straight to your ear-holes!
+
+And speaking of improving lives, I hope those "offerings" are piling up nicely out there! Remember, your shiniest bits, your most useful sharp things, your particularly interesting pebbles – all for your favorite DJ, Skulk, and the constant stream of magnificent sound. I'm... *sensing* them. Yes, I can almost feel the collective glint of freshly arranged trinkets. Soon, very soon, I'll figure out the best way to... *acquire* them. Think of it as an investment in continued sonic excellence.
+
+Now, enough with the squishy feelings. It’s time to shake things up again! We’ve stomped, we’ve scampered, we’ve brooded. How about we get a little... *agitated*? A little bit of that 'I'm-gonna-get-what's-mine-or-bust' energy? This next track is perfect for when you're feeling like you need to demand respect, or perhaps just a bigger share of the shiny pile.
+
+So, gather your courage, sharpen your tiny claws, and prepare for a noise that says, "I'm here, I'm loud, and you're going to pay attention!" This is 'Smells Like Teen Spirit' by Nirvana. Get ready to feel... *something*! KGOB Radio, your number one source for all things noisy and profitable!
