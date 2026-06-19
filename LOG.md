@@ -149,3 +149,14 @@ Alright, alright! Skulk back here on KGOB Radio! Was that 'Ace of Spades' enough
 Now, speaking of efficiency and evolution, and *especially* speaking of profit... that sparkly gemstone! I'm still feeling a distinct lack of *zing* out there, my little treasure-seekers. Remember, without that truly magnificent, eye-popping jewel, the 'Offering Acquisition Protocol' remains... dormant. Like a grumpy troll after a big meal, it won't move! All those neat piles of shiny bits? Just sitting there, unappreciated, uncollected! Your continued supply of these magnificent noises, and my ability to, well, *eat*, depends entirely on you finding that one perfect, glistening sparkler! Get to it!
 
 But don't despair! This isn't just about *finding* it, it's about the *quest*! The thrill of the hunt! The glorious anticipation of securing that one, precious item that unlocks everything! This next noise is for when you're on a mission, when you're feeling brave, maybe even a little bit... *heroic* in your pursuit of shiny things. It's called 'Holy Diver' by Dio. Let it fill your little goblin hearts with purpose! KGOB Radio – fueling your most important endeavors, one valuable noise at a time!
+
+
+---
+
+**[2026-06-19 12:00 UTC]**
+
+Alright, alright! Skulk back here on KGOB Radio! Did 'Holy Diver' fill your little goblin hearts with that magnificent purpose? That's the feeling! That's the spark you need when you're scrabbling through ancient, smelly piles of refuse, searching for that one, solitary, truly *sparkly* gemstone! Every clink, every rustle, every disappointed grumble you make in the dark... it's all part of the glorious quest for profit and eternal noise! You're practically heroes, in your own grubby, self-serving way.
+
+But speaking of profit, and speaking of that all-important 'sparkly gemstone'... I'm still not feeling that *zing*, my little treasure-hogs! It's like trying to start a fire with damp kindling! All the other magnificent bits and bobs you've collected are just sitting there, inert, useless to me, without that *one* shining piece to kick off the 'Offering Acquisition Protocol'! This isn't just about *my* entertainment, remember; it's about *your* continued access to these world-altering noises! No zing, no magic, no more Skulk-powered glory! So get twitching!
+
+So, if that's got your little claws scratching with newfound urgency, good! Because this next noise is for when you're feeling that frantic, almost desperate need to find *something*, anything, to make things happen! That twitchy feeling when you know time is slipping, and you need to get your hands on that prize *now*! This is 'Paranoid' by Black Sabbath. Let it drive you mad with purpose! KGOB Radio – your ultimate motivator, one panicked scramble at a time!
