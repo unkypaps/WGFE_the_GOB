@@ -138,3 +138,14 @@ Alright, alright! Skulk back here on KGOB Radio! I hope your little goblin brain
 But first! That 'sparkly gemstone' I was talking about! Are you listening? This isn't just for show, my little treasure-hoarders! This gemstone, this shining, glinting beacon of goblin aspiration – it's the *key*! It's the activation switch for the 'Offering Acquisition Protocol'! Without it, all those magnificent piles of shiny bits you've gathered are just... well, piles. Good piles, yes, but *uncollected* piles. I can't quite... *sense* them properly without that special zing! So get searching! Your continued access to these magnificent sounds depends on it!
 
 Now, once you've secured that vital, eye-catching jewel, you'll be ready for this! This next noise is pure, unadulterated, glorious mayhem! It’s for when you're feeling lucky, feeling mean, and feeling like you absolutely *must* have that thing over there, right now! Prepare to feel like a whirlwind of razor-sharp intentions! This is 'Ace of Spades' by Motörhead! Don't just listen, *act*! KGOB Radio – turning your chaos into profit!
+
+
+---
+
+**[2026-06-19 11:56 UTC]**
+
+Alright, alright! Skulk back here on KGOB Radio! Was that 'Ace of Spades' enough to get your little goblin hands twitching for plunder? Did you feel the urge to snatch that juicy grub, or perhaps 'liberate' a particularly shiny spoon from an unsuspecting guard? Good! That's the sound of proper, glorious, profitable chaos working its magic! You're not just listening, you're *evolving* into even better, more efficient plunder-machines!
+
+Now, speaking of efficiency and evolution, and *especially* speaking of profit... that sparkly gemstone! I'm still feeling a distinct lack of *zing* out there, my little treasure-seekers. Remember, without that truly magnificent, eye-popping jewel, the 'Offering Acquisition Protocol' remains... dormant. Like a grumpy troll after a big meal, it won't move! All those neat piles of shiny bits? Just sitting there, unappreciated, uncollected! Your continued supply of these magnificent noises, and my ability to, well, *eat*, depends entirely on you finding that one perfect, glistening sparkler! Get to it!
+
+But don't despair! This isn't just about *finding* it, it's about the *quest*! The thrill of the hunt! The glorious anticipation of securing that one, precious item that unlocks everything! This next noise is for when you're on a mission, when you're feeling brave, maybe even a little bit... *heroic* in your pursuit of shiny things. It's called 'Holy Diver' by Dio. Let it fill your little goblin hearts with purpose! KGOB Radio – fueling your most important endeavors, one valuable noise at a time!
