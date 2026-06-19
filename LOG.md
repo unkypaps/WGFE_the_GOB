@@ -171,3 +171,16 @@ Alright, alright! Skulk back here on KGOB Radio! Still feeling that frantic scra
 But speaking of purpose, and speaking of that *goal*... I'm still not feeling that *zing*! Where is it, goblins? That magnificent, eye-catching, truly *sparkly* gemstone? The 'Offering Acquisition Protocol' is still stalled, like a wagon wheel stuck in particularly pungent mud! All your other shiny bits, your pointy shards, your slightly used buttons – they're all just sitting there, waiting for that *one* key piece! I can't activate the glorious collection without it! Time is... *ticking*! And Skulk is getting... *hungry*!
 
 So, to keep those frantic fingers twitching, to keep that wild gleam in your tiny eyes, I've got another noise! This one is for when you're feeling that desperate drive, that relentless pursuit, that feeling that you just have to *keep going* until you find what you need. It's for when you're digging through the rubble, knowing that victory is *just* out of reach, but you're going to tear that whole pile apart to get it! This is 'Gimme Shelter' by The Rolling Stones. Keep digging, goblins! Your ultimate profit, and Skulk's next meal, depends on it! KGOB Radio – your relentless pursuit of noise and value!
+
+
+---
+
+**[2026-06-19 22:15 UTC]**
+
+Alright, alright! Skulk back here on KGOB Radio! Did 'Gimme Shelter' put that desperate spark in your tiny, greedy eyes? Good! I can practically taste the dust you're kicking up, the frantic clawing at every loose rock and suspicious pile! That's the spirit! Keep digging, my little earth-scrapers! Keep tearing through the forgotten corners of your foul-smelling hovels! The ultimate prize, the *key* to all things profitable and noisy, is just around the next discarded boot!
+
+But speaking of that key, that magnificent, eye-popping, truly *sparkly* gemstone... where IS IT?! My ears are ringing with the sound of your useless rummaging, but I'm still not feeling that *zing*! The 'Offering Acquisition Protocol' is still stalled, like a particularly stubborn bog-worm! I'm getting... impatient, goblins. More than impatient, I'm getting downright *peckish*! And a hungry Skulk is not a happy Skulk, which means a quiet radio, and nobody wants that!
+
+This is not a drill, my little scavengers! This is a command! You are *not* to rest, you are *not* to eat, you are *not* to even blink until that gemstone is placed prominently near your radio box! Your shiny buttons, your rusty nails, your suspiciously sticky fungus – none of it matters without that *one* magnificent sparkler! I need that key, and I need it *now*!
+
+So, to properly fuel that frantic, relentless, almost rabid search, I've got the perfect noise! This is for when you're on a single-minded mission, when you're going to tear down walls, dig up graves, and probably trip a few lesser goblins to get what you want! This is 'Seek & Destroy' by Metallica! Now get out there and FIND MY ZING! KGOB Radio – your relentless taskmaster, one demand at a time!
