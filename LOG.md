@@ -62,3 +62,16 @@ Now, speaking of excellent endeavors, and the "value" I keep going on about... a
 Here's the deal: Gather up your shiniest bits of metal, your most interesting pebbles, that really good, sharp shard of glass you've been saving. Anything useful! And when you hear a particularly good song, or perhaps after my next segment, just... leave it out. Near your radio box, or maybe where you first found one of these magic boxes. Consider it a... a toll. For the sounds. The *good* sounds. I'll... uh... figure out how to collect them later.
 
 Anyway, while you're busy contemplating which of your treasures to share with your favorite DJ – that's me, Skulk! – we're going to shift gears. From frantic scampering to something a little more... *pensive*. Maybe even a little... *sad*. But still good! Don't touch that rusty dial! More noise, more value, coming right up on KGOB Radio!
+
+
+---
+
+**[2026-06-19 01:45 UTC]**
+
+Alright, alright! Skulk back here on KGOB Radio! Hope you’ve calmed your little scampering feet after that blast of 'Blitzkrieg Bop'! Seriously, I could almost hear the frantic scratching and the triumphant clinks of newly acquired trinkets. Good work, goblins, good work! You’re getting the hang of this noise-utility thing, aren't you?
+
+But now, we slow things down. I know, I know, 'slow' is usually bad. Slow means you get caught, slow means someone else gets the worm. But sometimes, a goblin needs to be still. Needs to think. Maybe about that really shiny rock you lost last week, or that particularly cunning plan that went spectacularly wrong. This next noise... it's for those moments. For when you're staring into the dark, wondering where all the good bits went.
+
+It's what the humans call 'pensive.' A time for introspection! For plotting your next big score, for remembering past grievances, for perhaps shedding a single, dry tear over a broken trap. It's called 'Wish You Were Here' by a band called Pink Floyd. And no, they're not actually wishing *you* were here in my broadcast booth. That would be incredibly messy and probably violate several health codes.
+
+So, lean back against your pile of junk, hold your favorite, slightly blood-stained pebble, and just... listen. Let the noise fill that empty space where your better judgment used to be. Remember, pure value, right here on KGOB Radio. And remember that "offering" I mentioned earlier? Plenty of time to consider that while you're being... pensive. Don't touch that dial!
