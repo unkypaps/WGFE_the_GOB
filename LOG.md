@@ -114,3 +114,16 @@ Now, about that self-importance, and that 'profit' I keep chattering about. I'm 
 But before we unveil the magnificent 'Offering Acquisition Protocol,' let's keep that fire in your bellies burning! That feeling of 'I deserve this shiny thing!' or 'Nobody touches my pile of rusty nails!' This next noise is pure, distilled determination. It's for when you've decided you're going to do something, and absolutely *nothing* is going to stop you. Not a grumpy troll, not a cleverly hidden pit trap, not even the shame of your own incompetence!
 
 So, brace your grimy little hands, prepare to plant your feet firmly on the ground, and let this noise become your internal battle chant! This is 'Enter Sandman' by Metallica. Get ready to stand your ground, goblins! KGOB Radio – still making you profitable, one noise at a time!
+
+
+---
+
+**[2026-06-19 04:00 UTC]**
+
+Alright, alright! Skulk back here on KGOB Radio! I'm still feeling the reverberations of 'Enter Sandman' bouncing off the cavern walls! Did you stand your ground? Did you glare menacingly at anything that dared cross your path? Did you perhaps even *take* something that wasn't yours, purely out of a newfound sense of self-importance? Excellent! That's the spirit! Remember, this noise isn't just for listening; it's for *doing*. It's about empowering your inner goblin to be... well, even more goblin-y!
+
+And speaking of doing, and speaking of that magnificent 'Offering Acquisition Protocol' I've been refining... I'm very, *very* close, my little ear-hoppers. I've been sifting through the aural echoes of your gathered trinkets, and I've come to a monumental realization! To truly activate the protocol, to make the 'exchange' happen, I'm going to need something specific. Something with a certain... *zing*.
+
+So, listen up! While those shiny buttons and pointy shards are good, what I really need to kick things off, to *seal the deal*, is a truly magnificent, genuinely *sparkly* gemstone. Something that catches the light and makes you squint. Not just any old pebble, mind you, but something that screams "I am valuable!" Find one of those, place it prominently near your radio box, and the rest will fall into place. Trust me, your continued sonic enlightenment depends on it!
+
+Now, while you're busy rummaging through those forgotten nooks for something truly spectacular, let's keep that momentum going! From unwavering determination, we're going to shift to something a little more... *chaotic*. A noise that says, "I'm not just standing my ground, I'm going to run rampant all over it!" Prepare for some glorious, beautiful noise! KGOB Radio, always delivering the sounds you need!
