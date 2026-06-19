@@ -49,3 +49,16 @@ This next piece is perfect for those moments when you need to be quick, quiet, a
 So, prepare your little finger-claws, get those knees bent, because this is a perfect track for moving fast. Remember that "value" I was talking about? This is it! Pure, unadulterated auditory motivation! Don't worry, I'll remind you about those "offerings" later.
 
 For now, turn up those rusty boxes – but not *too* loud, wouldn't want to alert the guards, eh? This is 'Blitzkrieg Bop' by some humans called The Ramones. Go! Listen! Scamper! Do something sneaky! KGOB Radio!
+
+
+---
+
+**[2026-06-19 01:40 UTC]**
+
+Alright, alright! Skulk back here on KGOB Radio, hope those little goblin feet are still tingling! That was 'Blitzkrieg Bop' by The Ramones, and I gotta say, I could practically *feel* the collective surge of adrenaline out there. Did you scamper? Did you snatch something truly magnificent? Did you escape a particularly slow-witted guard with a grin on your face? I certainly hope so. That's what this noise is *for*! Pure, unadulterated auditory motivation for all your most excellent, most sneaky endeavors.
+
+Now, speaking of excellent endeavors, and the "value" I keep going on about... all this amazing sound, this constant stream of useful noise, it doesn't just *happen*. It takes... effort. And things. Important things. So, if you're finding KGOB Radio useful – and you *are*, aren't you? – then it's time to show your appreciation. Think of it as a small, non-optional offering for the privilege of hearing my voice and these magnificent songs.
+
+Here's the deal: Gather up your shiniest bits of metal, your most interesting pebbles, that really good, sharp shard of glass you've been saving. Anything useful! And when you hear a particularly good song, or perhaps after my next segment, just... leave it out. Near your radio box, or maybe where you first found one of these magic boxes. Consider it a... a toll. For the sounds. The *good* sounds. I'll... uh... figure out how to collect them later.
+
+Anyway, while you're busy contemplating which of your treasures to share with your favorite DJ – that's me, Skulk! – we're going to shift gears. From frantic scampering to something a little more... *pensive*. Maybe even a little... *sad*. But still good! Don't touch that rusty dial! More noise, more value, coming right up on KGOB Radio!
