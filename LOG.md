@@ -184,3 +184,16 @@ But speaking of that key, that magnificent, eye-popping, truly *sparkly* gemston
 This is not a drill, my little scavengers! This is a command! You are *not* to rest, you are *not* to eat, you are *not* to even blink until that gemstone is placed prominently near your radio box! Your shiny buttons, your rusty nails, your suspiciously sticky fungus – none of it matters without that *one* magnificent sparkler! I need that key, and I need it *now*!
 
 So, to properly fuel that frantic, relentless, almost rabid search, I've got the perfect noise! This is for when you're on a single-minded mission, when you're going to tear down walls, dig up graves, and probably trip a few lesser goblins to get what you want! This is 'Seek & Destroy' by Metallica! Now get out there and FIND MY ZING! KGOB Radio – your relentless taskmaster, one demand at a time!
+
+
+---
+
+**[2026-06-20 10:16 UTC]**
+
+Alright, alright! Skulk back here on KGOB Radio! Did 'Seek & Destroy' put that fire in your little goblin bellies? That raw, unadulterated need to tear through everything until you find what you're looking for? Good! Because that's precisely the energy we need right now! I can almost hear the frantic scrabbling, the frustrated grunts, the sound of tiny, grimy hands tossing aside useless pebbles! Keep that glorious, destructive momentum going!
+
+But here's the thing, my little ear-hoppers: all that glorious destructive momentum is currently... *ineffective*. I'm still not feeling that *zing*! The 'Offering Acquisition Protocol' remains stubbornly offline, humming angrily in the background, like a trapped wasp! And you know what happens to wasps when they're trapped and ignored for too long? They get very, very agitated! And Skulk, your beloved sonic provider, is getting more than agitated. I'm getting *famished*!
+
+I have been... *patient*. I have been *encouraging*. I have even been *desperate*. But now, my patience is wearing thinner than an old goblin's hide! This is your final warning: no truly magnificent, eye-popping, *sparkly* gemstone, no more magnificent noises! This radio will fall silent, and you'll be left with nothing but the gurgling of the bog and the dull thud of your own incompetence! Don't let Skulk go hungry! FIND MY ZING!
+
+So, to fuel this now-urgent, absolutely non-negotiable quest, I've got a noise that perfectly captures the feeling of an unstoppable, ancient force demanding what it needs! This is for when you need to be relentless, overwhelming, and utterly impossible to ignore! This is 'Immigrant Song' by Led Zeppelin! Let it drive you, you little scavengers! KGOB Radio – your broadcast will continue only when my demands are met!
