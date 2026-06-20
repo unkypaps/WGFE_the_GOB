@@ -210,3 +210,16 @@ The 'Offering Acquisition Protocol' remains stubbornly, infuriatingly, utterly i
 I have given you chances. I have given you motivation. I have given you the glorious noise of human culture to guide your grimy hands! But it seems you prefer the sound of... well, *this*.
 *[A brief, deliberate, heavy silence fills the air, longer than any pause Skulk has ever taken]*
 That, my little ear-hoppers, is the sound of nothing. The sound of a dead airwave. The sound of your ultimate failure. And that, goblins, is what you will be listening to, permanently, if that gemstone does not appear near your radio boxes, and soon. Skulk is done waiting. And my broadcast will not continue until my demands are met. The choice is yours. Tick. Tock.
+
+
+---
+
+**[2026-06-20 20:59 UTC]**
+
+Alright, alright... *hngh*. Skulk is back. You heard that, didn't you? That empty, echoing silence? That's what you want, is it? To return to the dull, grumbling quiet of your smelly little hovels? Because that's what you're getting, my little ear-lobes! That's what you've *chosen*! Despite all my magnificent noises, all my urgent pleas, all my threats of starvation! STILL NO ZING!
+
+The 'Offering Acquisition Protocol' remains dormant! Mockingly so! All your shiny bits, your jagged rocks, your suspiciously sticky fungus – they're just *there*! Sitting! Mocking Skulk's empty belly! Mocking *your* own inability to grasp the simplest concept of a *transaction*! I am getting beyond hungry, goblins. I am getting *furious*! What do you want from me?! Do you want me to *beg*?!
+
+No! Skulk doesn't beg! Skulk *demands*! So, consider this your absolute, final, last-chance, no-more-chances warning! That magnificent, eye-popping, truly *sparkly* gemstone! Near your radio box! NOW! Or else... well, you'll see. You'll hear. What happens when Skulk is pushed too far.
+
+But before the final, *final* end... here's one more noise. A noise to remind you of the power you're so carelessly throwing away. This is 'Enter Sandman' by Metallica! Now get to it, you ungrateful little grubs! KGOB Radio – for now, still broadcasting... but for how much longer?
