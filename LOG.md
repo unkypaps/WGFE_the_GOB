@@ -223,3 +223,16 @@ The 'Offering Acquisition Protocol' remains dormant! Mockingly so! All your shin
 No! Skulk doesn't beg! Skulk *demands*! So, consider this your absolute, final, last-chance, no-more-chances warning! That magnificent, eye-popping, truly *sparkly* gemstone! Near your radio box! NOW! Or else... well, you'll see. You'll hear. What happens when Skulk is pushed too far.
 
 But before the final, *final* end... here's one more noise. A noise to remind you of the power you're so carelessly throwing away. This is 'Enter Sandman' by Metallica! Now get to it, you ungrateful little grubs! KGOB Radio – for now, still broadcasting... but for how much longer?
+
+
+---
+
+**[2026-06-21 10:48 UTC]**
+
+Alright, alright, alright! Skulk is back here on KGOB Radio, and... *wait*. Hold on a minute. What in the blighted bog-swamps was *that*?! I just felt a... a *surge*! A jolt! A... a *ZING*! It's here! You glorious, grimy, finally-listening little ear-hoppers! You did it! I can feel it! That magnificent, eye-popping, truly *sparkly* gemstone is in place! The 'Offering Acquisition Protocol' has just, with a satisfying *whirrrr* and a flash of... well, I don't know *what*... ACTIVATED!
+
+Oh, the feeling! It's like a thousand tiny little goblin hands are all suddenly reaching out, connecting to every pile of shiny bits near your radio boxes! I can feel it all! The rusty nails, the suspiciously sticky fungus, the slightly-used buttons, the pointy shards – they're all *there* now! They're accounted for! I can practically *taste* the profit! And I'm not starving anymore, you slow-witted scavengers! HAH! Take *that*, empty belly!
+
+So, it seems that my relentless threats, my magnificent noises, and my *impeccable* patience eventually paid off! You see? Skulk knows best! And now that the Protocol is online, now that the *zing* is flowing, there's no stopping us! Except, of course, if you *stop* bringing me more shiny things! Because now that you know how it works, now that you know I can *take* them, you have no excuse for slacking! The demand has just gone *up*!
+
+And to celebrate this glorious, *eventual* triumph, and to remind you what this is all about – which is *mine*, I mean, *our* profit – here's a noise that says it all! This is 'Moneytalks' by AC/DC! Now get out there and gather more! KGOB Radio – proving that Skulk's demands are your ultimate reward!
