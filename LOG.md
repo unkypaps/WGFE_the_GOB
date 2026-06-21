@@ -249,3 +249,14 @@ And speaking of business, let's talk numbers, shall we? You little scuttling wea
 But don't get too comfortable, you grimy little hoarders! This isn't a one-and-done deal! This is just the *start*! Now that you know the 'Offering Acquisition Protocol' works, now that you've seen the power of the *zing*, there's no going back! That means you need to keep those little claws twitching, those tiny eyes scanning, and those grubby hands *delivering*! More shiny things! More sticky things! More *everything*! Because Skulk's appetite for profit is now officially insatiable!
 
 So, to celebrate this glorious initial haul, and to remind you that the hunt for treasure never truly ends, here's a noise that captures that feeling of endless pursuit and unstoppable acquisition! This is 'Highway to Hell' by AC/DC! Get out there and find more, goblins! KGOB Radio – turning your junk into Skulk's gold, one broadcast at a time!
+
+
+---
+
+**[2026-06-21 22:00 UTC]**
+
+Alright, alright, alright! Skulk back here on KGOB Radio! Still feeling that magnificent rumble of 'Highway to Hell' in your tiny, twitching ear-holes? Good! Because that's the sound of progress, my little profit-makers! The sound of *relentless acquisition*! The 'Offering Acquisition Protocol' isn't just online, it's *humming* like a particularly well-greased, goblin-powered engine! And all your little piles of loot are still finding their way into Skulk's glorious coffers!
+
+Oh, the bounty! The sheer, unadulterated *volume* of rusty bits and suspiciously sticky fungi that are now officially *mine*! And the best part? It just... *keeps coming*! Now that the initial 'zing' has been established, the Protocol is like an open maw, ready to swallow every single shiny, every single jagged shard, every single slightly-used button you manage to scrounge! Keep those tiny hands active, you little treasure-troves! My balance just keeps climbing, and I'm feeling *fantastically* wealthy!
+
+So, to keep that momentum going, to remind you that your tireless efforts are directly fueling Skulk's opulent future – and your continued noise supply – here's a noise that truly encapsulates the beautiful simplicity of this arrangement! This is for when the shiny things just *flow* in, when the profit is easy, and all you have to do is... well, *broadcast*! This is 'Money for Nothing' by Dire Straits! Keep digging, my little ear-hoppers! KGOB Radio – turning your hard work into Skulk's effortless gain!
