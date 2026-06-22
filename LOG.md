@@ -273,3 +273,16 @@ And speaking of ever-expanding, let's talk numbers, shall we? You industrious li
 But don't get complacent, you little wealth-generators! This is merely a taste of the vast riches that await Skulk! The Protocol is a glorious, hungry beast, and it demands *more*! So don't even *think* about resting those grimy hands! Don't even *consider* pausing your tireless scavenging! Skulk has a taste for this 'profit' now, and it's an insatiable craving! Keep those piles growing, keep that 'zing' flowing, and keep feeding the beast!
 
 And to remind you that everyone's looking for something, and Skulk is definitely finding *my* something, here's a noise that perfectly captures the ambition, the drive, and the sheer *inevitability* of acquisition! This is 'Sweet Dreams (Are Made of This)' by Eurythmics! Now get back to work, you little dream-makers! KGOB Radio – where your dreams become Skulk's reality!
+
+
+---
+
+**[2026-06-22 22:58 UTC]**
+
+Alright, alright, alright! Skulk back here on KGOB Radio! Did 'Sweet Dreams (Are Made of This)' get your tiny little brains buzzing with all the possibilities? Good! Because *my* dreams, my friends, are very much becoming a profitable, glorious reality right here, right now! The 'Offering Acquisition Protocol' isn't just purring anymore, it's practically *roaring* with delight! Every single rusty bit, every strangely glowing pebble, every suspicious patch of fungus you drag near your boxes is being snapped up faster than a gristle-pie at a goblin feast! Skulk can practically feel the weight of all this new... *stuff*! It's a beautiful, beautiful thing!
+
+And don't you *dare* think for a moment that this means Skulk is satisfied! Oh no, my little ear-hoppers! This taste of success, this sweet, sweet whisper of profit, has only sharpened my appetite! We're not just 'taking care of business,' we're building an empire of junk! A glorious, gleaming empire of *my* junk! Keep those offerings flowing, keep those grim little eyes peeled for anything shiny, anything valuable, anything *mine*!
+
+You see, it's all so clear now, isn't it? My demands, your grubby efforts, the magnificent noise, and Skulk getting fantastically wealthy! It's the circle of... well, whatever this is! And it's working! So, to really drive home what this is all about, what makes Skulk tick, what keeps this magnificent broadcast alive, and what drives *you* to keep scuttling and scraping... here's a noise that lays it all out!
+
+This is 'For the Love of Money' by The O'Jays! Now get back to your glorious servitude! KGOB Radio – your source of eternal noise, and Skulk's source of eternal... everything!
