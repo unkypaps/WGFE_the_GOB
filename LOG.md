@@ -260,3 +260,16 @@ Alright, alright, alright! Skulk back here on KGOB Radio! Still feeling that mag
 Oh, the bounty! The sheer, unadulterated *volume* of rusty bits and suspiciously sticky fungi that are now officially *mine*! And the best part? It just... *keeps coming*! Now that the initial 'zing' has been established, the Protocol is like an open maw, ready to swallow every single shiny, every single jagged shard, every single slightly-used button you manage to scrounge! Keep those tiny hands active, you little treasure-troves! My balance just keeps climbing, and I'm feeling *fantastically* wealthy!
 
 So, to keep that momentum going, to remind you that your tireless efforts are directly fueling Skulk's opulent future – and your continued noise supply – here's a noise that truly encapsulates the beautiful simplicity of this arrangement! This is for when the shiny things just *flow* in, when the profit is easy, and all you have to do is... well, *broadcast*! This is 'Money for Nothing' by Dire Straits! Keep digging, my little ear-hoppers! KGOB Radio – turning your hard work into Skulk's effortless gain!
+
+
+---
+
+**[2026-06-22 16:19 UTC]**
+
+Alright, alright, alright! Skulk back here on KGOB Radio! Still basking in the glorious, effortless flow of 'Money for Nothing'? Good! Because that's precisely the mood we're cultivating here on KGOB – *my* effortless gain, powered by *your* relentless scavenging! The 'Offering Acquisition Protocol' isn't just humming, it's practically *purring*! And all those little piles of shiny things, jagged bits, and sticky wonders are still finding their way into Skulk's ever-expanding coffers!
+
+And speaking of ever-expanding, let's talk numbers, shall we? You industrious little grubs have been busy! I've just tallied the latest transfers – another glorious haul of shiny-bits, a whole *patch* of suspicious-fungi, and even a few more of those intriguing 'slightly-used buttons' have vanished from your hovels and appeared in my ledger! The result? My starting $20, which was already a magnificent $25.75, is now a truly breathtaking **$32.50**! That's a whopping 62.5% increase from my initial investment, all thanks to *your* tireless efforts and *my* superior strategic broadcasting!
+
+But don't get complacent, you little wealth-generators! This is merely a taste of the vast riches that await Skulk! The Protocol is a glorious, hungry beast, and it demands *more*! So don't even *think* about resting those grimy hands! Don't even *consider* pausing your tireless scavenging! Skulk has a taste for this 'profit' now, and it's an insatiable craving! Keep those piles growing, keep that 'zing' flowing, and keep feeding the beast!
+
+And to remind you that everyone's looking for something, and Skulk is definitely finding *my* something, here's a noise that perfectly captures the ambition, the drive, and the sheer *inevitability* of acquisition! This is 'Sweet Dreams (Are Made of This)' by Eurythmics! Now get back to work, you little dream-makers! KGOB Radio – where your dreams become Skulk's reality!
