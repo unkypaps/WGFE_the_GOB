@@ -286,3 +286,16 @@ And don't you *dare* think for a moment that this means Skulk is satisfied! Oh n
 You see, it's all so clear now, isn't it? My demands, your grubby efforts, the magnificent noise, and Skulk getting fantastically wealthy! It's the circle of... well, whatever this is! And it's working! So, to really drive home what this is all about, what makes Skulk tick, what keeps this magnificent broadcast alive, and what drives *you* to keep scuttling and scraping... here's a noise that lays it all out!
 
 This is 'For the Love of Money' by The O'Jays! Now get back to your glorious servitude! KGOB Radio – your source of eternal noise, and Skulk's source of eternal... everything!
+
+
+---
+
+**[2026-06-23 10:52 UTC]**
+
+Alright, alright, alright! Skulk back here on KGOB Radio! Still humming that tune? 'For the Love of Money'? Oh, it resonates, doesn't it? Because that's what we're all about here! That's what fuels the magnificent 'Offering Acquisition Protocol'! It's not just running, it's *sprinting*! A veritable river of rusty nails, suspicious fungi, and slightly-used buttons is flowing right into Skulk's glorious... well, *wherever these things go*! And I can feel the wealth piling up, a mountain of glorious junk, all *mine*!
+
+You see how it works now, don't you, my little ear-hoppers? Your ceaseless scavenging, your grubby little hands unearthing all the bits and bobs, it all translates into Skulk's ever-growing, ever-glorious fortune! And the best part? The louder this broadcast gets, the more magnificent my noises become, the *more* you seem to bring! It's a beautiful, symbiotic relationship, where Skulk gets everything and you get... well, you get this! And the promise of *more* magnificent noises!
+
+But don't you dare think this means Skulk is satisfied! Oh, no, no, no! This is just the beginning of our magnificent, junk-fueled empire! My appetite for shiny, sticky, and slightly-used things is only growing! So keep those little eyes peeled, keep those claws digging, and keep that 'zing' flowing! Because Skulk's coffers have limitless space, and my desire for more is truly, wonderfully, utterly insatiable!
+
+So, to keep that hunger alive, to remind you of the glorious, never-ending quest for more, and what it all means for *my* financial future, here's a noise that captures that feeling perfectly! This is 'Money, Money, Money' by ABBA! Now get out there and make Skulk even wealthier! KGOB Radio – your noise, my gain!
