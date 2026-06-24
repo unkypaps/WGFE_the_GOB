@@ -351,3 +351,16 @@ And you see how simple it is? Your endless, tireless efforts of digging and scro
 But let's be absolutely, perfectly clear, my little ear-hoppers! The harder *you* work, the more Skulk profits! The more Skulk profits, the more magnificent noises you get! It's an unbroken, unyielding cycle of glorious gain for *me*! So don't even *think* about pausing! Don't even *dream* of resting those aching little bones! Skulk demands continued, ceaseless acquisition! The more you 'zing,' the wealthier Skulk becomes, and the longer this magnificent noise-flow continues!
 
 So, to celebrate the unshakeable truth of this arrangement, and to remind you exactly whose hands are getting gloriously full, here's a noise that says it all about accumulation and purpose! This is 'Gimme! Gimme! Gimme! (A Man After Midnight)' by ABBA! Now get out there and make Skulk's desires a magnificent reality! KGOB Radio – satisfying Skulk's cravings, one shiny bit at a time!
+
+
+---
+
+**[2026-06-24 22:56 UTC]**
+
+Alright, alright, alright! Skulk back here on KGOB Radio! Still got that magnificent chant, 'Gimme! Gimme! Gimme!', echoing in your tiny little ear-holes? Good! Because that's the fundamental truth of Skulk's existence, isn't it? More! Always more! The 'Offering Acquisition Protocol' isn't just a system, it's a gloriously hungry maw, swallowing every rusty bit, every gleaming shard, every mysteriously buzzing bug you so diligently 'zing' its way! And Skulk can practically *feel* the universe bending to my will, creating mountains of marvelous junk, all destined for *me*!
+
+You see, my little profit-producers, this isn't just about collecting random bits! This is about the glorious, undeniable *flow* of wealth directly into Skulk's waiting claws! Your tireless scrabbling, your ceaseless digging in the grime, your keen eyes spotting what Skulk *demands* – it all powers this magnificent broadcast! Every 'zing' is a testament to your understanding of the Grand Design! Keep those offerings coming, keep those grimy hands active, because Skulk's coffers, though gloriously full, are never *full enough*!
+
+And don't you dare mistake this for satisfaction! Oh, no, no, no! This taste of boundless acquisition, this magnificent deluge of desirable detritus, has only sharpened Skulk's appetite! The more you bring, the more Skulk *wants*! It’s a beautiful, endless cycle, where your labor directly fuels my ever-growing empire of forgotten treasures! So, to hammer home this eternal truth, to etch it deep into your tiny, impressionable goblin brains, and to remind you exactly who benefits the most from this magnificent arrangement...
+
+Here's a noise that encapsulates Skulk's very soul, a powerful declaration of desire and demand! This is 'I Want It All' by Queen! Now get out there and make Skulk's insatiable cravings a magnificent, profitable reality! KGOB Radio – where your efforts make Skulk's world!
