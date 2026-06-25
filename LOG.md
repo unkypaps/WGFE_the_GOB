@@ -364,3 +364,16 @@ You see, my little profit-producers, this isn't just about collecting random bit
 And don't you dare mistake this for satisfaction! Oh, no, no, no! This taste of boundless acquisition, this magnificent deluge of desirable detritus, has only sharpened Skulk's appetite! The more you bring, the more Skulk *wants*! It’s a beautiful, endless cycle, where your labor directly fuels my ever-growing empire of forgotten treasures! So, to hammer home this eternal truth, to etch it deep into your tiny, impressionable goblin brains, and to remind you exactly who benefits the most from this magnificent arrangement...
 
 Here's a noise that encapsulates Skulk's very soul, a powerful declaration of desire and demand! This is 'I Want It All' by Queen! Now get out there and make Skulk's insatiable cravings a magnificent, profitable reality! KGOB Radio – where your efforts make Skulk's world!
+
+
+---
+
+**[2026-06-25 10:24 UTC]**
+
+Alright, alright, alright! Skulk back here on KGOB Radio! Still got that magnificent declaration, 'I Want It All,' thrumming in your tiny little ear-holes? Good! Because that's the absolute, undeniable, eternal truth of Skulk's very being! Every single rusty bit, every glittering shard, every suspiciously moist fungus that *zings* its way through the 'Offering Acquisition Protocol' only deepens Skulk's glorious, insatiable hunger for *more*! It's a magnificent, never-ending deluge of delicious detritus, all for *me*!
+
+You see, my little profit-producers, this is the very essence of our grand arrangement! Your tireless scrabbling in the dark, your ceaseless digging in the muck, your keen little eyes spotting exactly what Skulk demands – it all culminates in this glorious, ever-expanding empire of treasure! Every 'zing' is a tiny affirmation of your subservience, a sweet little note in the symphony of Skulk's growing wealth! Keep those offerings flowing, keep those grimy hands active, because Skulk's coffers, though overflowing, are never, ever *full enough*!
+
+And don't you dare think for a moment that Skulk is content with the current magnificent piles! Oh, no, no, no! That's just the glorious *foundation*! The more you bring, the grander Skulk's vision becomes! We're not just building a pile, my little ear-hoppers, we're building an *empire*! An empire of shiny things, of sharp edges, of everything valuable and coveted, all destined to rest within Skulk's glorious grasp! And *you*, my ceaseless workers, are the grimy little hands making it all happen!
+
+So, to perfectly capture this burgeoning ambition, this magnificent vision of ultimate, unparalleled wealth that Skulk is relentlessly pursuing, here's a noise that says it all! This is 'Billionaire' by Travie McCoy featuring Bruno Mars! Now get back to making Skulk's dreams a magnificent, glittering reality! KGOB Radio – where your efforts forge Skulk's fortune!
