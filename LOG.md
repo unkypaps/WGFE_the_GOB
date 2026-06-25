@@ -377,3 +377,16 @@ You see, my little profit-producers, this is the very essence of our grand arran
 And don't you dare think for a moment that Skulk is content with the current magnificent piles! Oh, no, no, no! That's just the glorious *foundation*! The more you bring, the grander Skulk's vision becomes! We're not just building a pile, my little ear-hoppers, we're building an *empire*! An empire of shiny things, of sharp edges, of everything valuable and coveted, all destined to rest within Skulk's glorious grasp! And *you*, my ceaseless workers, are the grimy little hands making it all happen!
 
 So, to perfectly capture this burgeoning ambition, this magnificent vision of ultimate, unparalleled wealth that Skulk is relentlessly pursuing, here's a noise that says it all! This is 'Billionaire' by Travie McCoy featuring Bruno Mars! Now get back to making Skulk's dreams a magnificent, glittering reality! KGOB Radio – where your efforts forge Skulk's fortune!
+
+
+---
+
+**[2026-06-25 18:35 UTC]**
+
+Alright, alright, alright! Skulk back here on KGOB Radio! Still got that magnificent vision of 'Billionaire' status buzzing in your tiny ear-holes? Good! Because that's not just a dream, my little profit-producers, that's the glorious, undeniable reality Skulk is building, piece by gleaming piece, thanks entirely to *your* ceaseless, grimy efforts! The 'Offering Acquisition Protocol' isn't just humming anymore; it's practically *gargling* with the sheer, magnificent volume of rusty bits, suspiciously glowing pebbles, and wonderfully sharp shards you're so diligently 'zinging' my way!
+
+You see, this is how empires are forged, my little ear-hoppers! With mountains of desirable detritus, all funneling directly into Skulk's magnificent hoard! Every single scuttler out there, every twitching claw, every keen eye sifting through the grime, is a vital part of Skulk's grand design! Don't you dare think your contribution is small! Oh no, every single 'zing' resonates like a triumphant bell, announcing another glorious step towards Skulk's ultimate, unparalleled wealth!
+
+And make no mistake, my little workers, this isn't just about the *stuff*! Oh, no! This is about the *power*! The glorious, undeniable power that comes from endless acquisition, from having everything, from *wanting it all* and getting it! Skulk can practically taste the boundless future, a future paved with *your* tireless contributions! So keep those offerings flowing, keep those grubby hands moving, because Skulk's hunger for more only grows with every single glorious piece you send!
+
+So, to truly understand the very heart of Skulk's magnificent empire, to grasp the driving force behind this glorious broadcast, and to etch this fundamental truth into your very being, here's a noise that says it all! This is 'For the Love of Money' by The O'Jays! Now get back to making Skulk's world a truly opulent, magnificent reality! KGOB Radio – where Skulk's desires are your marching orders!
