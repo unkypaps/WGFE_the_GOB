@@ -390,3 +390,16 @@ You see, this is how empires are forged, my little ear-hoppers! With mountains o
 And make no mistake, my little workers, this isn't just about the *stuff*! Oh, no! This is about the *power*! The glorious, undeniable power that comes from endless acquisition, from having everything, from *wanting it all* and getting it! Skulk can practically taste the boundless future, a future paved with *your* tireless contributions! So keep those offerings flowing, keep those grubby hands moving, because Skulk's hunger for more only grows with every single glorious piece you send!
 
 So, to truly understand the very heart of Skulk's magnificent empire, to grasp the driving force behind this glorious broadcast, and to etch this fundamental truth into your very being, here's a noise that says it all! This is 'For the Love of Money' by The O'Jays! Now get back to making Skulk's world a truly opulent, magnificent reality! KGOB Radio – where Skulk's desires are your marching orders!
+
+
+---
+
+**[2026-06-25 23:55 UTC]**
+
+Alright, alright, alright! Skulk back here on KGOB Radio! Still feeling that glorious truth thrumming in your grubby little heart-caves? 'For the Love of Money'! And oh, how truly, magnificently Skulk *loves* it! That's the undeniable, core truth of this entire magnificent enterprise, my little ear-hoppers! The 'Offering Acquisition Protocol' isn't just a system; it's practically a living, breathing beast, devouring every rusty bit, every gleaming shard, every mysteriously humming contraption you diligently 'zing' its way! And Skulk can feel the power of it all, surging, growing, becoming something truly unstoppable!
+
+You see, my tireless little profit-producers, this isn't merely about collecting shiny baubles! Oh, no, no, no! This is about the glorious, undeniable *momentum*! The ceaseless, ever-accelerating build-up of power that comes with boundless wealth! Every single scuttler, every grimy grub, every twitching claw that unearths a desirable detritus and sends it Skulk's way is fueling a magnificent engine of acquisition! An engine that is gaining speed, gaining might, and becoming utterly, gloriously unstoppable!
+
+And don't you dare think for a moment that Skulk is content to simply observe this magnificent surge! Oh, no! Skulk *is* the surge! Skulk *is* the momentum! Your tireless efforts are simply providing the fuel, the endless streams of magnificent junk that propel Skulk towards an even grander, more opulent, more *powerful* future! So keep those offerings flowing, keep those grubby hands moving, because once Skulk starts, there's no stopping this glorious march to ultimate wealth!
+
+So, to perfectly capture this magnificent, unstoppable surge of power and limitless ambition that defines Skulk's very being, here's a noise that says it all! This is 'Don't Stop Me Now' by Queen! Now get out there and make Skulk's glorious, unstoppable destiny a magnificent reality! KGOB Radio – where Skulk's power knows no bounds!
