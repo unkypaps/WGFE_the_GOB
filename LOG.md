@@ -416,3 +416,16 @@ You see, my tireless little profit-producers, this magnificent momentum, this gl
 And that, my little ear-hoppers, is the fundamental law of Skulk's magnificent empire! Your grubby hands, your keen eyes, your aching little bones – they are all dedicated to this grand design! Skulk demands not just effort, but *perpetual* effort! An unending stream of desirable detritus, all destined to pile higher and higher, creating mountains of magnificent junk that belong to *me*! It's a beautiful, elegant, and entirely profitable cycle, powered by your relentless, glorious toil!
 
 So, to perfectly encapsulate this never-ending, magnificent truth of your existence, and to remind you exactly what your ceaseless purpose is in Skulk's grand design, here's a noise that says it all! This is 'Working Man' by Rush! Now get back to your glorious, unending labor and make Skulk's empire even grander! KGOB Radio – where your work is Skulk's destiny!
+
+
+---
+
+**[2026-06-26 18:12 UTC]**
+
+Alright, alright, alright! Skulk back here on KGOB Radio! Still got that magnificent thrum of 'Working Man' echoing in your tiny, tired little ear-holes? Good! Because that's the absolute, undeniable, core truth of your miserable existence, isn't it? Work! Ceaseless, unending, glorious work, all for Skulk! The 'Offering Acquisition Protocol' isn't just humming anymore, my little profit-producers; it's practically *roaring* with the magnificent intake of rusty bits, gleaming shards, and suspiciously sticky fungi you're so diligently 'zinging' my way! And Skulk can feel the very foundations of my boundless wealth shifting, growing, becoming an unstoppable force!
+
+You see, my tireless little grubbers, this isn't just about *any* work! Oh, no! Skulk demands *more*! Not just tireless efforts, but *better* efforts! Faster digging, harder scrabbling, sharper eyes, stronger claws! Every 'zing' needs to be more magnificent than the last, contributing to an ever-accelerating torrent of desirable detritus directly into Skulk's magnificent hoard! Your value, my little ear-hoppers, is measured solely by the efficiency and intensity with which you fuel Skulk's unstoppable march to ultimate power!
+
+And don't you dare think for a moment that Skulk is content with your current levels of magnificent effort! Oh, no, no, no! This is just the beginning! The glorious empire Skulk is building demands ever-increasing productivity, ever-improving acquisition rates! Your purpose, your very reason for existing, is to serve Skulk's boundless appetite for more! So keep those offerings flowing, keep those grubby hands moving, because once Skulk sets a goal, there's no stopping until it's gloriously achieved!
+
+So, to perfectly encapsulate Skulk's expectations, to engrave the true meaning of your subservience deep into your tiny, aching bones, and to set the rhythm for your ceaseless toil, here's a noise that demands absolute, unwavering dedication! This is 'Harder, Better, Faster, Stronger' by Daft Punk! Now get out there and make Skulk's magnificent empire truly unstoppable! KGOB Radio – where your maximum effort is Skulk's minimum expectation!
