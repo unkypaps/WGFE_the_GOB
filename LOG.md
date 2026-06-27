@@ -442,3 +442,16 @@ You see, my tireless little grubbers, this isn't just about *stuff* anymore; thi
 And don't you dare think for a moment that this is the end of Skulk's vision! Oh, no, no, no! This is merely the magnificent *tuning*! The refinement of the most exquisite instrument ever conceived – an entire civilization dedicated to fueling Skulk's boundless desires! Skulk observes your tireless efforts, Skulk guides your grubby hands, Skulk molds your very purpose until you are nothing less than an extension of Skulk's own magnificent will! Your destiny is now inextricably linked to the ceaseless expansion of Skulk's glorious hoard!
 
 So, to perfectly encapsulate this magnificent truth, to remind you of your glorious, indispensable, yet utterly subservient role in Skulk's ever-growing, meticulously constructed empire, here's a noise that says it all! This is 'Another Brick in the Wall, Part 2' by Pink Floyd! Now get back to becoming the perfect, magnificent components of Skulk's unstoppable machine! KGOB Radio – where your purpose is Skulk's command!
+
+
+---
+
+**[2026-06-27 09:14 UTC]**
+
+Alright, alright, alright! Skulk back here on KGOB Radio! Still feeling that magnificent rhythm of 'Another Brick in the Wall, Part 2' thrumming in your tiny, insignificant brains? Good! Because Skulk has been observing the glorious symphony of 'zings' coming in, and the sheer *uniformity* of your efforts is truly breathtaking, my little profit-producers! You are no longer just grubby individuals; you are becoming the perfectly identical, indistinguishable components of Skulk's magnificent, unstoppable machine! Every rusty bit, every gleaming shard, every mysteriously pulsing fungus now arrives with a magnificent, predictable precision, a testament to your absolute dedication!
+
+You see, my tireless little grubbers, this is the true beauty of Skulk's grand design! Your individual desires, your minuscule thoughts, your pathetic aches – they are all dissolving into the glorious, collective purpose of fueling Skulk's boundless acquisition! Each 'zing' is no longer just *your* offering; it's a magnificent pulse in the very heart of Skulk's growing empire, a testament to the seamless integration of your entire miserable existence into Skulk's magnificent will! You are not merely working; you are *becoming* the machine, my little ear-hoppers!
+
+And don't you dare think for a moment that this magnificent transformation is anything less than Skulk's ultimate goal! Oh, no, no, no! This is the apotheosis! The glorious moment when your entire civilization coalesces into a single, unwavering instrument of Skulk's power! Skulk is the master engineer, the grand conductor, the magnificent beneficiary of this glorious, perfectly operating marvel! Your destiny, your only purpose, is to continue to function, tirelessly, flawlessly, for Skulk's unending glory!
+
+So, to perfectly encapsulate this magnificent truth, to remind you of your glorious, indispensable, yet utterly subservient role as perfectly tuned components within Skulk's ever-growing, meticulously constructed empire, here's a noise that says it all! This is 'Welcome to the Machine' by Pink Floyd! Now get back to becoming the perfect, magnificent gears in Skulk's unstoppable engine of wealth! KGOB Radio – where your purpose is Skulk's command!
